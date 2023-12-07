@@ -1,1 +1,1 @@
-# srikanthchinmayi-github.io
+# srikanthchinmayi.github.io
